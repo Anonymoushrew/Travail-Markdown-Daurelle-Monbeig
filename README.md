@@ -33,4 +33,5 @@ Nous ne savons pas encore vraiment quels métiers nous souhaitons faire, mais no
 ### Personnellement ou au niveau des loisirs
 
 Nicolas souhaite participer à des grands tournois de **Smash Bros Ultimate** et de s'inscrire avec les plus grands. Peut être même sortir un projet d'écriture ou deux mais vu le rythme de travail, ce serait étonnant que l'un se termine. 
+
 Ils souhaitent sinon tout deux s'épanouir dans un futur où ils pourront être en emphase avec leur environnement et croquer la vie à pleine dent pour s'assurer une joie permanente.
