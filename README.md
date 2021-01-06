@@ -7,8 +7,10 @@ Nous sommes deux étudiants de l'IUT d'Aix-Marseille. Nous sommes venus en novic
 ## Nos passions
 
 ### Maxime
-Dans le cas de Maxime, c'est un grand fan de sports d'hiver, notamment le **SNOWBOARD**. 
+Dans le cas de Maxime, c'est un grand fan de sports d'hiver, notamment le **SNOWBOARD**.
+
 Il aime aussi tout ce qui concerne les Rubik's cube (les grands, les petits, les heptagones, en carrés ou avec des formes bizarres etc etc). 
+
 Il ne passe pas un moment sans musique, et de la bonne ! Pas de musique récente qui sent le commercial mais de la bonne vieille musique des année 70 à 90. 
 Il passe ses moments de détente à jouer aux jeux vidéos, et surtout à **The Legend of Zelda** qu'il affectionne tout particulièrement. Il est aussi un véritable pro à Rocket League qui est aussi un de ses jeux favoris (autant à regarder qu'à jouer).
 
